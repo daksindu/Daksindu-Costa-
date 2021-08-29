@@ -1,3 +1,3 @@
-# daksindu Costa
+# Hi, I'm De Costa M.D.K
 
-My registration number is IT20244798
+My SLIIT registration number is IT20244798
